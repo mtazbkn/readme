@@ -2,6 +2,6 @@
 
 welcome to amazing profile 
 
-Mouse wine
+Mouse wine 🔥
 
 will be adding more things soon
