@@ -1,7 +1,7 @@
 # readme
 
-welcome to amazing profile 
+welcome to profile 
 
-Mouse wine 🔥
+currently into c, python, solidity. thinking of java next i think
 
 will be adding more things soon
